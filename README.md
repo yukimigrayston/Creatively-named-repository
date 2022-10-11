@@ -10,7 +10,7 @@ P is for People who make a camp fire campy, just like regular people but ever so
 
 F is for Frustrated, the feeling you get when you can't come up with clever ryhems so you forgetter your sweatter when going to the, uhhh, met-er gala?
 I is for I, the second letter in fIre.
-R is for R, the Third letter in FiRe.
-E is for E, the Fourth letter in FirE.
+R is for R, the Third letter in fiRe.
+E is for E, the Fourth letter in firE.
 
 Annnnnnnd thats the song.
