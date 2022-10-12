@@ -14,3 +14,16 @@ R is for R, the Third letter in fiRe.
 E is for E, the Fourth letter in firE.
 
 Annnnnnnd thats the song.
+
+
+C is for Cabin sitting in the woods. 
+A is for All sights around us. 
+M is for the Map we forgot. 
+P is for Peter who got lost in the woods.
+
+F is for Fire that we lit. 
+I is for ... I have no idea where Peter is. 
+R is for Really where did Peter go. 
+E is for Everyone is her except for Peter. 
+
+Is this even a song anymore? 
